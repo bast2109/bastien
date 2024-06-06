@@ -1,9 +1,10 @@
 ---
-title: Contact
+title: "Contact"
 order: 1
+in_menu: true
 ---
+Pour me contacter, vous pouvez m'écrire à cette adresse mail : bastien.lasserre@proton.me
 
-L'Échappée Belle est actuellement composée de 6 membres.
+Au plaisir de vous lire.
 
-Pour nous contacter : [coucou@lechappeebelle.team](mailto:coucou@lechappeebelle.team)
-`
+Bastien 
