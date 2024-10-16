@@ -1,5 +1,5 @@
 ---
-title: "Croyance"
+title: "La vie est un jeu"
 ---
 Je vois la vie comme un jeu.
 
