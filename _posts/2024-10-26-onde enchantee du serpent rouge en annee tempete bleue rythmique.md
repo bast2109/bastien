@@ -25,7 +25,7 @@ Je vous embrasse.
 
 Bastien.
 
-1.37.4.8
+                        1.37.4.8 - Chien blanc Rythmique - 25 oct
 
 Salut!
 
@@ -61,7 +61,7 @@ Ventre apaisé, coeur souriant allons-y.
 Bises à vous.
 
 
-1.37.4.9 – Singe bleu résonnant – 26 oct 2024
+              1.37.4.9 – Singe bleu résonnant – 26 oct 2024
 
 Salut ! 
 
