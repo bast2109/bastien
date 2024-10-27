@@ -25,7 +25,7 @@ Je vous embrasse.
 
 Bastien.
 
-               1.37.4.8
+<h1>1.37.4.8 - 25/10/24</h1>
 
 Salut!
 
@@ -59,9 +59,8 @@ Voyons la suite.
 Ventre apaisé, coeur souriant allons-y.
 
 Bises à vous.
-
-
-           1.37.4.9 – Singe bleu résonnant – 26 oct 2024
+           
+<h1>1.37.4.9 - 26/10/24– Singe bleu résonnant</h1>
 
 Salut ! 
 
@@ -85,7 +84,8 @@ Allez c’est parti je vais cherché un kiné sur le net.
 
 La bise et prenez soin de vous. Aimez vous. Aimons nous. Smouatch. 
 
-             1.37.4.10 – Humain jaune Galactique - 27/10/24
+              
+<h1>1.37.4.10 - 27/10/24 – Humain jaune Galactique</h1>
 
 Salut !
 
