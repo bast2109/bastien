@@ -90,8 +90,8 @@ La bise et prenez soin de vous. Aimez vous. Aimons nous. Smouatch.
 Salut !
 
 Les questions que viennent nous poser les divinités maya aujourd’hui sont celles-cis :
-    • Comment vivre ma vérité ?
-    • Est-ce que je vis ce que je crois ?
+• Comment vivre ma vérité ?
+• Est-ce que je vis ce que je crois ?
 
 Et c’est cette dernière qui m’intéresse. L’autre je capte pas. 
 Répondre à cette dernière question m’amène à me questionner au sujet de ce que je  crois. 
