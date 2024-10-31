@@ -157,5 +157,3 @@ Voyons ce qui se passera et déjà je vousinvite à prendre le temps de vous que
 
 Je vous souhaite une agréable, beau et doux moment.
 Bastien.
-
-1.37.4.14 - Guerrier Jaune Cristal - 31 octobre
