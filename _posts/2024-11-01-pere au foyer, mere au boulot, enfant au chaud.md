@@ -42,3 +42,5 @@ Je vous souhaite une agréable, beau et doux moment.
 Bastien.
 
 1.37.4.14 - Guerrier Jaune Cristal - 31 octobre
+
+![Peinture réalisée par Marion me représentant avec Zorah dans les bras]({% link images/Screenshot_20240913-093308.jpg %})
