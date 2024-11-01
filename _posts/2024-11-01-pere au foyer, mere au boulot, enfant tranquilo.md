@@ -1,6 +1,8 @@
 ---
 title: "Père au foyer, Mère au boulot, Enfant tranquilo"
 ---
+![Peinture réalisée par Marion me représentant avec Zorah dans les bras]({% link images/Screenshot_20240913-093308.jpg %})
+
 Salut !
 
 Je viens de faire un "petit" changement de cap dans "mes choix de vies".
@@ -38,9 +40,7 @@ Je suis heureux de faire la vaisselle avec elle, de prendre le temps d'aller à 
 Alors voilà ce n'est que le début et pout le moment je suis ravi.
 Voyons ce qui se passera et déjà je vousinvite à prendre le temps de vous questionner sur ce dont vous avez réellement envie parceque malgré de nombreux facteurs il se peut que vous passiez à côté de la plus belle des expériences que vous pourriez vivre si vous ne suiviez pas les "conditionnements" des autres, les "expériences des autres, les "habitudes" des autres.
 
-Je vous souhaite une agréable, beau et doux moment.
+Je vous souhaite un agréable, beau et doux moment.
 Bastien.
 
 1.37.4.14 - Guerrier Jaune Cristal - 31 octobre
-
-![Peinture réalisée par Marion me représentant avec Zorah dans les bras]({% link images/Screenshot_20240913-093308.jpg %})
