@@ -47,25 +47,37 @@ Alors je continue de désirer et désormais je met plus de distance dans le temp
 
 Un autre sujet qui m'anime au sujet de Shikitai ga nai c'est de supporter la réaction des autres et surtout vis à vis de ce que je juge comme vulnérable en moi désormais.
 
-C'est les endroits où j'ai l'impression que j'oublis que tout cela n'est qu'un jeu, car je crois que tout cela n'est qu'un jeu et je l'oublis souvent encore, peut-être que je joue à oublier que c'est un jeu. Bref je m'égare du propos dont j'ai envie de vous parler même si je joue.
+C'est les endroits où j'ai l'impression que j'oublis que tout cela n'est qu'un jeu, car je crois que tout cela n'est qu'un jeu et je l'oublis souvent encore.
 Donc j'ai de la difficulté à supporter la communication des autres, surtout quand je sens qu'ils disent quelque chose qu'ils ne disent pas avec leur verbe et que pourtant tout leur être le dit selon ce que je sens.
-J'aimerais que tout le monde puissent communiquer de la manière la plus authentique, ouverte et aimante possible mais souvent je le vis plutôt comme une exigence. Surtout lorsque je ne me suis pas offert suffisamment d'attention, d'amour. Alors je réagis sous le joug de mes émotions et l'emploi des mots qui dépassent l'amour et la douceur que j'aimerai apporter à l'autre car j'ai l'impression que c'est le "non-amour" de moi, la non écoute de mon corps et des signaux qu'ils m'envoient qui fait que le chaos se répand hors de ma bouche.
-D'où ma volonté d'aller  marcher lorsque je vis de la colère en présence d'un autre humain plutôt que de parler. Car je n'ai plus envie de me fatiguer. Les colères intenses que je vis épuisent mon corps, je le vois. Et créent de la diharmonie dans ma relation avec les autres.
 
-La dernière fois je suis aller au médecin et je lui ai parlé de ce stress que je vis, il m'a alors prété un document sur lequel un artcile était édcrit au sujet du stress, d'un autre medécin je crois.
-Ce dernier propose une "technique" qui m'a apporté un soulagelent quasi instané. Même si cela demande de la pratique et donc encore une fois un processus "lent" pour voir le résultat, l'effet.
-C'est le fait de voir les exigeances que j'ai sur moi et sur les autres. Puis de transformer ces exigences génératrices de stress et de frustration en préférences accompagnées de l'affirmation que je m'accomoderai de la situation quoiqu'il arrive.
+J'aimerais que tout le monde puissent communiquer de la manière la plus authentique, ouverte et aimante possible mais souvent je le vis plutôt comme une exigence. 
+Surtout lorsque je ne me suis pas offert suffisamment d'attention, d'amour. Alors je réagis sous le joug de mes émotions et l'emploi des mots qui dépassent l'amour et la douceur que j'aimerai apporter à l'autre car j'ai l'impression que c'est le "non-amour" de moi, la non écoute de mon corps et des signaux qu'ils m'envoient qui fait que le chaos se répand hors de ma bouche.
 
-Un exemple: je vis l'exigeance que l'on me questionne si j'en ai envie ou non avant de me demander quelque chose voir même plutôt de me commander quelque chose. Alors en le transormant ça donne: je préfère être questionné plutôt que commandé et je m'en accomode si l'autre me commande quelque chose.
+D'où ma volonté d'aller  marcher lorsque je vis de la colère en présence d'un autre humain plutôt que de parler. Car je n'ai plus envie de me fatiguer. Les colères intenses que je vis épuisent mon corps, je le vois. Et créent de la disharmonie dans ma relation avec les autres.
 
-Un autre exemple: Je vis l'exigeance Que l'autre parle quand il vit des choses à l'intérieur, surtout quand ces des émotions comme la colère. Alors je préfère que l'autre parle de lui-même quand il vit des émotions intenses et je m'en accomode s'il ne le fait pas.
+La dernière fois je suis aller au médecin et je lui ai parlé de ce stress que je vis, il m'a alors prété un document sur lequel un article était écrit au sujet du stress, d'un autre medécin je crois.
+Ce dernier propose une "technique" qui m'a apporté un soulagement quasi instané. 
+Même si cela demande de la pratique et donc encore une fois un processus "lent" pour voir le résultat, l'effet.
 
-Un autre exemple: je vis l'exigeance de pouvoir utiliser mon corps comme j'en ai envie. Alors je préfère pouvoir utiliser mon corps comme j'en ai envie et si je ne le peux pas je m'en accomode.
+C'est le fait de voir les exigeances que j'ai sur moi et sur les autres. Puis de transformer ces exigences génératrices de stress et de frustration en préférences, accompagnées de l'affirmation que "je m'accomoderai de la situation quoiqu'il arrive".
 
-ça peut paraître pas grand  chose. Pour moi ça m'évite un bon nombre de frustration et une douceur, un recul, ça me permet de redevenir spectateur de mes émotions et du personnage que je joue plutôt que d'être attaché à l'acteur. Je m'en détache plus facilement grâce à ça. Ce qui me permet de revenir jouer le rôle que je veux jouer avec plus de clarté.
+Un exemple: 
+je vis l'exigeance que l'on me questionne si j'en ai envie ou non avant de me demander quelque chose voir même plutôt de me commander quelque chose. Alors en le transormant ça donne: je préfère être questionné plutôt que commandé et je m'en accomode si l'autre me commande quelque chose.
 
-Et beh voilà j'ai fini. Je vous souhaite un beau moment avec vous-même ou avec les autres.
-Prenez soin de vous. Je vous le souhaite en tout cas, car la vie ainsi est plus agréable depuis ce côté ci de la vie.
+Un autre exemple: Je vis l'exigeance que l'autre parle quand il vit des choses à l'intérieur, surtout quand ces des émotions comme la colère. 
+Transformation: je préfère que l'autre parle de lui-même quand il vit des émotions intenses et je m'en accomode s'il ne le fait pas.
+
+Un autre exemple: 
+je vis l'exigeance de pouvoir utiliser mon corps comme j'en ai envie. Alors je préfère pouvoir utiliser mon corps comme j'en ai envie et si je ne le peux pas je m'en accomode.
+
+ça peut paraître pas grand chose. Pour moi ça m'évite un bon nombre de frustration et une douceur, un recul, ça me permet de redevenir spectateur de mes émotions et du personnage que je joue plutôt que d'être attaché à l'acteur. Je m'en détache plus facilement grâce à ça. Ce qui me permet de revenir jouer le rôle que je veux jouer avec plus de clarté.
+
+Et beh voilà j'ai fini. Je souhaite que tous ces mots peuvent vous faire chaud au coeur d'une manière ou d'une autre et si ce n'est pas le cas je m'en accomoderai! :P
+
+Je vous souhaite un beau moment avec vous-même ou avec les autres.
+Prenez soin de vous. Je vous le souhaite en tout cas, car je trouve que la vie ainsi est plus agréable même si j'ai l'impression de n'être encore qu'un débutant de l'Amour.
+
 oooooooohhhhh olé !
 
-Bastien
+Avec amour,
+Bastien.
