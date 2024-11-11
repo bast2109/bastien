@@ -1,6 +1,9 @@
 ---
 title: "La sagesse de l'ombre."
 ---
+![Texte décrivant l'image]({% link images/1731330776183.jpg %})
+
+
 Salut ! 
 
 Je me réveille tout juste.
