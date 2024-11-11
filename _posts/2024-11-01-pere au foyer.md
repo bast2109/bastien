@@ -1,5 +1,5 @@
 ---
-title: "Père au foyer, Mère au boulot, Enfant tranquilo"
+title: "Père au foyer"
 ---
 ![Peinture réalisée par Marion me représentant avec Zorah dans les bras]({% link images/Screenshot_20240913-093308.jpg %})
 
