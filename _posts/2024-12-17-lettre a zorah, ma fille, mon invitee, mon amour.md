@@ -7,9 +7,10 @@ Je t'aime.
 
 Que je t'aime... Que je suis heureux d'être là auprès de toi, de pouvoir te voir au quotidien, à chaque lever, à chaque matin.
 Que je suis heureux de pouvoir te parler et te voir grandir. Qu'elle joie! Qu'elle joie furieuse que d'être père.
+
 Que je suis heureux et reconnaissant que tu te jettes dans mes bras quand on ne s'est pas vues depuis quelques temps comme par exemple une nuit ou quand je rentre à la maison alors que j'étais partis.
 
-Aucun mot ne saurait décrire ce que je vis à ton sujet, "Je t'aime" est ce qui s'en rapproche le plus.
+Aucun mot ne saurait décrire ce que je vis à ton sujet. "Je t'aime", est ce qui s'en rapproche le plus.
 Je suis tellement heureux et reconnaissant de ta présence dans ma vie, dans mon présent, dans mon cœur.
 Tu y seras d'ailleurs à tout jamais dans mon cœur, même lorsque ce cœur mourra, je t'aime pour l'éternité Zorah.
 
@@ -17,15 +18,22 @@ Je suis si fier de toi.
 Je suis si fier d'être ton père, ton "meilleur ami". 
 Je suis si fier d'être une présence à tes côtés.
 
-Tu es belle et je ne parle pas seulement de l'être charnel que tu es, je parle de l'être tout entier que je vois de toi, la lumière qui se dégage de ce magnifique soleil que tu es, la beauté qui brille dans tes yeux et la chaleur qui se dégage de tes gestes d'amour et de tendresse.
+Tu es belle. Et je ne parle pas seulement de l'être charnel que tu es, je parle de l'être tout entier que je vois de toi, la lumière qui se dégage de ce magnifique soleil que tu es, la beauté qui brille dans tes yeux et la chaleur qui se dégage de tes gestes d'amour et de tendresse.
+
+Je t'écris à travers ce document pour te permettre un jour, quand tu en auras les compétences, de savourer ce que je t'ai concocté. Je souhaite que tu y trouveras satisfaction et inspiration.
+Je t'aime de tout mon coeur. Prends soin de toi et sois confiante en toi, car tu es un soleil qui brille quoiqu'il arrive, même dans la plus profonde obscurité
+
+Un ami nommé Kevin a fait résonner cette chanson en moi: 
+" Cette lumière en moi, je la laisse briller.
+  Cette lumière en moi, je la laisse briller.
+  Cette lumière en moi, je la laisse briller. Je la laisse. Je la laisse briller.".
 
 J'ai envie de te partager des œuvres que je découvre dans ce présent et qui m'émeuvent et qui je crois pourront être un appui, des sources d'inspiration, des soutiens lorsque tu en auras envie et ou besoins.
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UXU0_vRYYJI?si=kXsDei_aKz2zT6Fh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-
-
 Voici une ouvre musicale d'une chanteuse qui s'appelle Louane. J'ai été ému par sa chanson car je me reconnais dans ce modèle là d'avoir "du mal à m'aimer".
 Je te la partage car je crois que dans ta "construction" d'être vivant humain il sera judicieux à un moment que tu t'inspire d'autres modèles, d'autres expressions de la Création même si tu le fais déjà mais je crois que des modèles orientés vers l'expression artistique sont les plus émancipateurs.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UXU0_vRYYJI?si=kXsDei_aKz2zT6Fh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 Et la Nature, la Création, t'as offert un corps féminin et les mots de Louane résonne en moi sur le fait que ça ne va pas être facile pour une fille d'être libre d'être ce qu'elle a envie d'être sur cette Terre.
 Mais j'y contribue, à ma hauteur.
