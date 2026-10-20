@@ -3,6 +3,8 @@ title: "Aimer plutôt que survivre"
 ---
 Je ne veux pas survivre à tout prix.
 
+![Zorah et moi en voyage à Intermarché à 45 min de chez nous en vélo]({% link images/20261006_160630(1).jpg %})
+
 Je préfère jouer à un jeu, d’étendre l’être que je suis, de m’épanouir, d’aimer, de coopérer, de contribuer à l’épanouissement des autres, plutôt que de survivre.
 Évidemment, je préfère vivre que mourir.
 Mais ce que je veux dire par là, c’est qu’il me semble que nous soyons tous mu par une volonté. C’est-à-dire, que je le veuille ou non, je serais guidé par un certain désir, une force et il me semble que si je ne me questionne pas au sujet de vers quoi « ma vie » va, alors par défaut j’irai vers la survie. 
@@ -31,5 +33,3 @@ Et pourtant j’ai énormément de comportements de protection et de fermeture.
 J’ai la sensation d’avoir des blessures dans le cœur non guéries, non cicatrisées.
 Mais je désire quand même être ouvert à la vie.
 Je désire quand même aimer la vie, m’aimer, aimer les autres et aimer tout le reste.
-
-![Zorah et moi en voyage à Intermarché à 45 min de chez nous en vélo]({% link images/20261006_160630(1).jpg %})
